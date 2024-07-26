@@ -1,5 +1,5 @@
 
-### Urgent Action to Combat Climate Change and Its Impacts
+### Action to Combat Climate Change and Its Impacts
 
 **Introduction**
 Climate change is a critical issue impacting many areas of life, including agriculture and business. Our project explores these impacts and identifies actionable solutions.
