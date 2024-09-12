@@ -1,4 +1,4 @@
-We decided not to explore the topic of mosquito-borne diseases and instead prioritized parental influence in sports on children for several reasons:
+We decided not to explore the topic of Local Bussiness support and instead Sports as a Tool for  Mental and Physical Health for several reasons:
 
 - Audience Relevance:
 
